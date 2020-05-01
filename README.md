@@ -1,0 +1,2 @@
+# ujikom
+UJIKOM SMKN 2 KOTA SUKABUMI
